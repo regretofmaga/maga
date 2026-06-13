@@ -1,2 +1,2 @@
-# maga
-temp
+# WOOAHHHHH
+Im so lazzyy to do this.
